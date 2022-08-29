@@ -8,7 +8,9 @@
 
 - 💬 Ask me about **HTMl , CSS , JavasSript**
 
-- 📫 How to reach me **anmolsinghbhatia1001@gmail.com**
+- 📫 **[HERE](https://anmol1001.bio.link/)** is how to Contact Me.
+
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
